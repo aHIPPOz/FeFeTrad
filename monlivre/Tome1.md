@@ -176,19 +176,13 @@ Cette découverte valut à Arthur le premier de ses trois prix Nobel. Il avait q
 
 Sa troisième découverte fut la plus controversée et la plus importante : la téléportation.
 
-Non pas la téléportation de la science-fiction, avec ses scintillements bleus et ses effets sonores dramatiques. La téléportation d'Arthur était un processus brutal, complexe, et fondamentalement désagréable. Il s'agissait de décomposer un objet en informations cohérentes, de transférer ces informations à travers un canal de cohérence quantique, puis de recomposer l'objet à l'arrivée. Le processus fonctionnait sur la matière inerte. Il fonctionnait aussi, théoriquement, sur la matière vivante — mais les premiers essais sur des animaux produisirent des résultats qui persuadèrent Arthur de ne jamais publier cette partie de ses travaux.
+Non pas la téléportation imparfaite imaginée 30 ans avant sa naissance consistant à enregistrer, transporter, puis recomposer la matière sous forme d'information. La téléportation d'Arthur était un processus audacieux, simple, et surtout très énergivore. Il s'agissait de trouer l'espace lui même de façon stable et cohérente. Le processus fonctionnait sur la matière inerte comme sur la matière vivante mais nécessitait tellement d'énergie que Arthur était le seul humain sur terre possédant des moyens de lui fournir assez d'énergie.
 
-Les lapins téléportés arrivaient vivants. Mais ils n'étaient plus tout à fait les mêmes. Leurs souvenirs étaient altérés. Leurs personnalités avaient changé. Certains devenaient agressifs. D'autres sombraient dans une catatonie dont ils ne revenaient pas. Un seul lapin — le numéro 7 du groupe experimental — resta exactement identique. Arthur l'examina pendant trois semaines avant de comprendre pourquoi : ce lapin possédait une anomalie cérébrale congénitale qui affectait sa capacité à former de nouveaux souvenirs. Autrement dit, il ne se rendait pas compte qu'il avait changé, parce qu'il n'avait pas la capacité de comparer son état actuel à son état antérieur.
-
-Arthur regarda ce lapin pendant longtemps.
-
-Puis il l'euthanasia.
-
-Et il nota dans son journal personnel, avec une écriture qui ne tremblait pas :
+Il eut aussi des intérets pour des domaines moins fondamentaux que la science comme la psychologie. pendant un temps son but fut de comprendre l'essance de l'existence : ce qui déterminait l'identité, il arraiva à la conclusion suivente : 
 
 *« L'identité n'est pas une substance. C'est une illusion entretenue par la mémoire. Détruisez la mémoire, et l'identité se détruit avec elle. Mais si l'identité est une illusion, alors qu'est-ce qui survit à la téléportation ? La forme, oui. La fonction, oui. Mais la personne ? Non. La personne meurt à chaque instant que la mémoire ne peut pas combler. »*
 
-Il ferma le journal.
+Et il nota cette conclusion dans son journal personnel avant de refermer le journal.
 
 Il ne rouvrit jamais cette page.
 
