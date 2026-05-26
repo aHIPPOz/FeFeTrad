@@ -90,7 +90,7 @@ Et il écrivit, en dessous :
 
 Ce fut le moment où Arthur cessa d'être un enfant.
 
-Non pas parce qu'il avait compris quelque chose de profound sur l'arbre. Mais parce qu'il avait compris quelque chose de profound sur lui-même : ses émotions n'étaient pas des vérités. Elles n'étaient que des artefacts — des résidus chimiques d'un cerveau qui n'avait pas encore appris à se contrôler entièrement.
+Non pas parce qu'il avait compris quelque chose de profond sur l'arbre. Mais parce qu'il avait compris quelque chose de profond sur lui-même : ses émotions n'étaient pas des vérités. Elles n'étaient que des artefacts — des résidus chimiques d'un cerveau qui n'avait pas encore appris à se contrôler entièrement.
 
 Il ne les supprima pas. Il ne les réprima pas. Il les *classea*.
 
