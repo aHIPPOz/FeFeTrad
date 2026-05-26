@@ -8,7 +8,7 @@
 
 Il naquit dans la boue.
 
-Non pas métaphoriquement. Littéralement. La femme qui l'enfanta — une servante du clan Feng, lignée mineure de la province de Qishan, sur le continent oriental du Murim — accoucha dans l'allée pavée derrière les cuisines du manoir, à quatre heures du matin, par une nuit de pluie glaciale, allongée sur des cendres encore tièdes que les cuisiniers avaient jetées la veille au soir. Elle avait dix-sept ans. Elle avait été violée six mois plus tôt par un garde de la escorte du maître, un homme dont elle ne connaissait pas le nom et qu'elle ne reverrait jamais.
+Non pas métaphoriquement. Littéralement. La femme qui l'enfanta — une servante du clan Feng, lignée mineure de la province de Qishan, sur le continent oriental du Murim — accoucha dans l'allée pavée derrière les cuisines du manoir, à quatre heures du matin, par une nuit de pluie glaciale, allongée sur des cendres encore tièdes que les cuisiniers avaient jetées la veille au soir. Elle avait dix-sept ans. Elle avait été violée six mois plus tôt par un garde de l'escorte du maître, un homme dont elle ne connaissait pas le nom et qu'elle ne reverrait jamais.
 
 Elle poussa l'enfant hors d'elle dans un silence absolu, car crier, dans le clan Fen, attirait l'attention, et attirer l'attention, pour une servante, était un crime.
 
